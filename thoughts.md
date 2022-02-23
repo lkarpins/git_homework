@@ -4,4 +4,3 @@ Utilize study hall!
 Practice, practice, practice!
 Shoutout to my husband for keeping me fed and sane during this stressful first week :)
 Git has a STEEP LEARNING CURVE!
-Continue to practice, practice, practice!
